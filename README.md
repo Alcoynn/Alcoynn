@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Alcoynn
+- 👋 Hi, It’s @Alcoynn
 - 👀 
 
 <!---
